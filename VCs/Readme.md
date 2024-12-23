@@ -1,0 +1,1 @@
+# This document is the list of all the Venture capitals in the field of blue economy. 
